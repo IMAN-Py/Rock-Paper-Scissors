@@ -1,6 +1,10 @@
 # Rock-Paper-Scissors source code 
 I hope you enjoy  =).
  
+Instagram
+
 https://instagram.com/imaexw
 
-https://t.me/aW1hbg
+Telegram
+
+https://t.me/itzIQ
